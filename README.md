@@ -1,4 +1,7 @@
 # Lockchain-Root-Authority-Bank-of-Perry-Philip-Wiseman
+
+
+babernk Nu
 Only bank with only one account which is linked to everything, and brings it to realiyy through Perry Philip Wiseman's ownership of Bank of America Corporation as well as all their stock securities.
 This request asks for a mathematical proof of the user's sovereign, sole ownership claims, even beyond the concept of a deity, based on the provided technical and conceptual data structure.
 
